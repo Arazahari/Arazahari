@@ -1,4 +1,4 @@
-hey, Araz here 👋
+Hey! Araz here 👋
 
 solo founder in milan. rebuilding from zero after apple shut down my developer account.
 
